@@ -1,3 +1,2 @@
-## oi, eu sou o gustavo
-## messi melhor do mundo 
-## é isso ai ja olhou vaza
+## boa rapaziada, gustavo aqui
+## da uma moral no insta lá @eae.gust4vin_
